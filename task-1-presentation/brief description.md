@@ -1,1 +1,3 @@
+## 📊 Task 1: Digital Literacy Infographic
 
+In this task, I created a Digital Literacy Awareness infographic using Canva. The objective was to present key concepts of digital literacy in a simple and visually engaging manner. The infographic explains the meaning of digital literacy, highlights useful digital tools for students, and provides essential tips for safe internet practices. It is designed with clear sections, icons, and concise content to make the information easy to understand and appealing for viewers. This task helped me improve my creativity, design skills, and ability to communicate important information effectively through visual content.
