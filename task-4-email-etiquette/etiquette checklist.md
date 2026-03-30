@@ -1,4 +1,4 @@
-## ✅ Responsible Social Media Use Checklist (For College Students)
+## ✅ Responsible Social Media Use Checklist 
 
 ### ✔️ Do’s
 - **Think before you post** – Ensure your content is respectful and appropriate.
